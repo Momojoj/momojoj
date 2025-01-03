@@ -1,7 +1,7 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Onnicha Srisaman
 ========================================================================================================================================
 
-Computer Science Student ![](https://tenor.com/th/view/dancing-cute-sweet-shinchan-moves-gif-17232207)
+Computer Science Student ![chinjan](https://s3.ezgif.com/tmp/ezgif-3-759f283244.gif)
 ------------------------
 
 * 🌍  I'm based in Bangkok
